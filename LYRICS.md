@@ -15,3 +15,8 @@ Putain, c'est en me disant "j'ai jamais demandé à t'avoir!"C'est avec ces form
 coeur :
 
 Mais laisse pas traîner ton filsSi tu ne veux pas qu'il glisseQu'il te ramène du viceLaisse pas traîner ton filsSi tu veux pas qu'il glisse
+
+
+coeur :
+
+Non laisse pas traîner ton filsLaisse pas traîner ton filsSi tu ne veux pas qu'il glisseQu'il te ramène du viceLaisse pas traîner ton filsSi tu veux pas qu'il glisseLaisse pas traîner ton filsSi tu ne veux pas qu'il glisseQu'il te ramène duviceLaisse pas traîner ton filsSi tu veux pas qu'il glisse
